@@ -1,0 +1,2 @@
+# premium-filigree-wire-001-filigree-wire-scroll-silvers
+Tired of losing your filigree wire gauge notes, scrapping half-finished scroll designs, and juggling a dozen sticky notes for soldering steps? The Filigree Wire &amp; Scroll Silversmith Hub is your all-in-one Notion command center—built specifically for the meticulous art of wire scroll silversmithing.  This template eliminates the chaos of scattered p
